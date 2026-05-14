@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate ClickUp for macOS tool with custom ClickUp for macOS Tool | multi-device sync + database templates. Featuring multi-device sync and database templates, it's the
 
 
 
